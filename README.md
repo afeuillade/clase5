@@ -1,1 +1,1 @@
-hola grupo
+hola equipo
