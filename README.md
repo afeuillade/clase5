@@ -1,2 +1,3 @@
 hola grupo
-Como estan?
+Como estan? bien y tu?
+
